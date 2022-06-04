@@ -1,1 +1,1 @@
-# rsschool-cv
+https://matee4ka.github.io/rsschool-cv/cv
